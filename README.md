@@ -1,2 +1,1 @@
-what
-how do i code,,, if anyones willing to like help me code let me know thru my strawpage maybe,,,???? pls
+hi guys if anyones willing to help me code a readme pls message me @reddooner on discord
